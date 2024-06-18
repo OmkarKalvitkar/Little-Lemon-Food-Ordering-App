@@ -1,0 +1,7 @@
+![Food1](https://github.com/OmkarKalvitkar/Little-Lemon-Food-Ordering-App/assets/161920873/f72b25c6-ce73-414f-af6a-c509edeea829)
+![Food 2](https://github.com/OmkarKalvitkar/Little-Lemon-Food-Ordering-App/assets/161920873/836dc298-21a2-48fa-9a92-de942be7d9cb)
+![food3](https://github.com/OmkarKalvitkar/Little-Lemon-Food-Ordering-App/assets/161920873/80609cb8-4d0a-4dce-bda4-b44e184d8665)
+![food4](https://github.com/OmkarKalvitkar/Little-Lemon-Food-Ordering-App/assets/161920873/aa6329fd-6cb3-4081-87a4-e8ea160fafc2)
+![food5](https://github.com/OmkarKalvitkar/Little-Lemon-Food-Ordering-App/assets/161920873/056376b1-9236-4a34-9d29-d312ae75edbc)
+![food6](https://github.com/OmkarKalvitkar/Little-Lemon-Food-Ordering-App/assets/161920873/fa314fac-c145-4392-9432-5389f301e982)
+![food7](https://github.com/OmkarKalvitkar/Little-Lemon-Food-Ordering-App/assets/161920873/ad67e8a6-dafa-4391-afcb-e0f2b322a932)
